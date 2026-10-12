@@ -1,7 +1,7 @@
-# vpn 最新翻墙软件｜网站打不开，点这里开通
+# vpn 最新翻墙软件｜科学上网、翻墙 app、稳定梯子
 
 网页打不开、视频一直转圈、换个手机又要重新找？  
-用这个邀请链接注册。**一个账号，Windows、Mac、iOS、安卓都能用。**
+用这个邀请链接注册。**一个账号，Windows、Mac、iOS、安卓都能科学上网。**
 
 <p align="center">
   <a href="https://cdn.tgfish-go.com/?code=QX5dtgzd"><strong>立即注册开通 →</strong></a>
@@ -57,6 +57,14 @@ Windows、Mac、iOS、安卓。手机和电脑通用。
 
 **以后链接换了去哪看？**  
 以本页为准。建议收藏这个页面。
+
+## 翻墙、科学上网相关搜索
+
+翻墙、科学上网、免费翻墙、免费科学上网、免费 VPN、稳定翻墙、稳定 VPN、翻墙软件、翻墙 app、一键翻墙、一键翻墙浏览器、梯子、翻墙梯子、机场、节点、免费节点、fanqiang、自由上网、科学上网工具、翻墙教程、代理、外网。
+
+Shadowsocks、SS、SSR、V2Ray、V2RayN、Xray、Clash、Clash Meta、Mihomo、Trojan、Hysteria、sing-box、TUIC、NaiveProxy、WireGuard、OpenVPN、goflyway。
+
+iOS 翻墙、安卓翻墙、Android 翻墙、Windows 翻墙、Mac 翻墙、Linux 翻墙、路由器翻墙、手机翻墙、电脑翻墙、苹果翻墙、安卓 VPN、iOS VPN。
 
 <p align="center">
   <a href="https://cdn.tgfish-go.com/?code=QX5dtgzd"><strong>现在就开通，把打不开的网站打开 →</strong></a>
