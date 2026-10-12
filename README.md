@@ -1,5 +1,31 @@
-# vpn 最新翻墙软件   app翻墙  稳定翻墙
+# vpn 最新翻墙软件 · app翻墙 · 稳定翻墙
 
-- 还是推荐 [https://get3.okk.dog/?path=register&code=lvlXSRq5](https://get3.okk.dog/?path=register&code=Dnt6YDyz) 这款vpn, 免费试用1G流量，后期续费也便宜，主要是稳定，用了几年了
-- 一整个账号全平台适用
-![image](https://github.com/H-ioi/vpn/assets/81223424/a794efcb-5441-40ae-abc8-a090b3693ff3)
+找稳定的科学上网，直接用下面的邀请链接注册。一个账号全平台通用，电脑和手机都能用。
+
+## 最新邀请链接
+
+**[点此注册开通](https://cdn.tgfish-go.com/?code=QX5dtgzd)**
+
+https://cdn.tgfish-go.com/?code=QX5dtgzd
+
+打开后按页面提示完成注册。如果出现验证码，填写后再进入即可。
+
+## 为什么用这款
+
+- 连接稳定，适合日常翻墙、科学上网
+- 一个账号全平台适用，不用手机、电脑各买一份
+- 注册简单，打开邀请链接就能开始
+
+## 三步开通
+
+1. 打开上方邀请链接，完成注册
+2. 按提示下载对应客户端
+3. 用同一个账号登录，换设备也能继续用
+
+## 支持设备
+
+Windows、Mac、iOS、安卓，手机和电脑通用。
+
+![客户端示意](https://github.com/H-ioi/vpn/assets/81223424/a794efcb-5441-40ae-abc8-a090b3693ff3)
+
+链接以本页为准。打不开时换个浏览器，或稍后再试。
